@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @edwinjuanda
 - 👀 I’m interested in movie
 - 🌱 I’m currently learning anything
-- 💞️ I’m looking to collaborate on how to make much money
+- 💞️ I’m looking to collaborate on how to make much GOLD
 - 📫 How to reach me just email to edwinjuanda@yahoo.com
 
 <!---
